@@ -1,0 +1,7 @@
+- 👋 Hi, I’m zhanglin20231001@hotmail.com
+- 👀 I’m interested in reading and sporting.
+- 🌱 I’m currently learning RUST.
+- 💞️ I’m looking to collaborate on the education of the basic computer technology system.
+- 📫 How to reach me:you can tell me 15866795772。
+- 😄 Pronouns: Do the best of yourself! You are amazing!
+- ⚡ Fun fact: This woman is not so lazy!
